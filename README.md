@@ -8,3 +8,5 @@ https://books.google.de/books?id=atcsEAAAQBAJ&printsec=frontcover&dq=rechte+esot
 https://www.google.com/url?sa=t&source=web&rct=j&url=https://library.oapen.org/handle/20.500.12657/28260&ved=2ahUKEwjOwsDyl830AhVgSfEDHRVtCTUQFnoECAcQAQ&usg=AOvVaw0KoS9p8ZHO4-Fbneei1UhL
 
 Flugschulee
+
+https://www.slpb.de/buch/rechtsextremismus-und-rechtspopulismus-in-sachsen
