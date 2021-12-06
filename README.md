@@ -10,3 +10,5 @@ https://www.google.com/url?sa=t&source=web&rct=j&url=https://library.oapen.org/h
 Flugschulee
 
 https://www.slpb.de/buch/rechtsextremismus-und-rechtspopulismus-in-sachsen
+
+https://haessliche-woerter.de/daten.html
