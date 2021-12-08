@@ -12,3 +12,5 @@ Flugschulee
 https://www.slpb.de/buch/rechtsextremismus-und-rechtspopulismus-in-sachsen
 
 https://haessliche-woerter.de/daten.html
+
+https://twitter.com/hambinition/status/1408136139882520578?t=9OKgq9_9L50QHBdV7seUSw&s=19
