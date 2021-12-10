@@ -26,3 +26,4 @@ zertret
 Landesverrat
 Landesverräter
 Volksverräter
+Systemparteien", "Umvolkung", "Großer Austausch", "Volkstod
