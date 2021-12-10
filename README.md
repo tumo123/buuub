@@ -26,4 +26,7 @@ zertret
 Landesverrat
 Landesverräter
 Volksverräter
+Schafott
+An die Wand stellen
+
 Systemparteien", "Umvolkung", "Großer Austausch", "Volkstod
