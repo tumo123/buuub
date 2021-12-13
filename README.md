@@ -15,29 +15,7 @@ https://haessliche-woerter.de/daten.html
 
 https://twitter.com/hambinition/status/1408136139882520578?t=9OKgq9_9L50QHBdV7seUSw&s=19
 
-Galgen
-Standgericht
-Standrechtlich
-Todesstrafe
-Todesurteil
-auslösch
-ausmerzen
-zertret
-Landesverrat
-Landesverräter
-Volksverräter
-Schafott
-An die Wand stellen
-Steinigen
-Darknet
-Freitod
-Selbstmord
-Das Leben nehmen
-
-
-Systemparteien", "Umvolkung", "Großer Austausch", "Volkstod
-fremdvölkisch
-Völkisch
-Passdeutsch
-Volksdeutsch
-Blockpartei
+Firma BRD
+Polizeihilfswerk
+Gelber Schein
+Haager apostille
