@@ -30,6 +30,10 @@ Schafott
 An die Wand stellen
 Steinigen
 Darknet
+Freitod
+Selbstmord
+Das Leben nehmen
+
 
 Systemparteien", "Umvolkung", "Großer Austausch", "Volkstod
 fremdvölkisch
