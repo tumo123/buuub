@@ -16,3 +16,5 @@ https://haessliche-woerter.de/daten.html
 https://twitter.com/hambinition/status/1408136139882520578?t=9OKgq9_9L50QHBdV7seUSw&s=19
 
 https://archive.org/stream/FreiMaxVonGeheimsacheStaatsangehorigkeitFreiheitFuurDieDeutschen2017269S.Text/Frei%2C+Max+von+-+Geheimsache+Staatsangeho%CC%88rigkeit+-+Freiheit+fu%CC%88r+die+Deutschen+%282017%2C+269+S.%2C+Text%29--_djvu.txt
+
+https://archive.org/details/bfeddieentlarvungdesjudentumsverheimlichtezionistenundjuden03.03.2020/page/n1/mode/2up
