@@ -21,3 +21,11 @@ https://archive.org/details/bfeddieentlarvungdesjudentumsverheimlichtezionistenu
 https://twitter.com/Die_Insider?t=za4Q5PLqg8e1_NG6xPshVA&s=09
 https://osf.io/preprints/socarxiv/9rgtk/download
 https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0256675
+https://ieeexplore.ieee.org/abstract/document/9291476
+
+Validität 100er sample
+Treue je Nutzer
+Vernetzungsgrad je Monat
+Themen je Monat
+
+Verteilung links je nutzer
