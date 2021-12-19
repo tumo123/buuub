@@ -20,3 +20,4 @@ https://archive.org/stream/FreiMaxVonGeheimsacheStaatsangehorigkeitFreiheitFuurD
 https://archive.org/details/bfeddieentlarvungdesjudentumsverheimlichtezionistenundjuden03.03.2020/page/n1/mode/2up
 https://twitter.com/Die_Insider?t=za4Q5PLqg8e1_NG6xPshVA&s=09
 https://osf.io/preprints/socarxiv/9rgtk/download
+https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0256675
