@@ -29,3 +29,6 @@ Vernetzungsgrad je Monat
 Themen je Monat
 
 Verteilung links je nutzer
+
+
+https://www.python-graph-gallery.com/324-map-a-color-to-network-nodes
